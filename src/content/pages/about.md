@@ -3,48 +3,14 @@ template: about-page
 slug: /about
 title: About Foundation
 ---
-Thank you! Now say "nuclear wessels"! No! Don't jump! A sexy mistake. Anyone who laughs is a communist!
+Not much is known about Rick's life before his current state seen in the show except for a few things that have been vaguely mentioned in the series. It has been mentioned multiple times that Rick has been absent from the family for 20 years, and it wasn't until one year before the events of "Something Ricked This Way Comes" when Rick finally returned to the Smith house on January 15th. The reason for his absence is unknown to the rest of the family.
 
-A true inspiration for the children. And when we woke up, we had these bodies. Moving along… Do a flip! Michelle, I don't regret this, but I bth rue and lament it.
+![Toys](/assets/download-1-.jpeg "Toys")
 
-![Toys](/assets/vanessa-bucceri-gdirwiyama8-unsplash.jpg "Toys")
+In the [Pilot](https://rickandmorty.fandom.com/wiki/Pilot "Pilot") episode, Rick told Beth that he loved the eggs that she made him and that her mother would have loved them too if she was still there. In the episode [Rick Potion #9](https://rickandmorty.fandom.com/wiki/Rick_Potion_No._9 "Rick Potion No. 9"), it is revealed that Rick has a very pessimistic worldview, informing Morty that love is "just a chemical reaction that compels animals to breed", advising him not to continue the cycle of love, marriage, and heartbreak that he had to go through and that his parents would likely go through, and instead encourages him to direct his interests towards science. This could imply that the woman he married before is either divorced and/or deceased as of now. In "The Wedding Squanchers", Rick mentions that he "couldn't make a \[marriage] work" which might imply that he is a divorcee. Whether or not his wife is dead, divorced, or both remains a mystery, but nevertheless, she is absent from his life.
 
-Nay, I respect and admire Harold Zoid too much to beat him to death with his own Oscar. Well, then good news! It's a suppository. Then we'll go with that data file! **I've been there.** *My folks were always on me to groom myself and wear underpants.* What am I, the pope?
+Rick used to be a rock star/bassist. In the episode [Get Schwifty](https://rickandmorty.fandom.com/wiki/Get_Schwifty "Get Schwifty"), it was revealed that when Rick was somewhere in his college years or in his 20's, he, [Birdperson](https://rickandmorty.fandom.com/wiki/Birdperson "Birdperson"), and [Squanchy](https://rickandmorty.fandom.com/wiki/Squanchy "Squanchy") were in a rock band called "[The Flesh Curtains](https://rickandmorty.fandom.com/wiki/The_Flesh_Curtains "The Flesh Curtains")". He played as the bassist in said band. However the comics contradict this in issue seven, showing him playing electric guitar. So in conclusion, he might have played both the bass and the electric guitar.
 
-Daddy Bender, we're hungry. We can't compete with Mom! Her company is big and evil! Ours is small and neutral! We're rescuing ya. We'll go deliver this crate like professionals, and then we'll go home.
+Rick is also shown to be a terrorist on an inter-galactic level. In the episode "[The Wedding Squanchers](https://rickandmorty.fandom.com/wiki/The_Wedding_Squanchers "The Wedding Squanchers")", Rick willingly turned himself over to the [Galactic Federation](https://rickandmorty.fandom.com/wiki/Galactic_Federation "Galactic Federation") and was sent to one of their maximum security prisons - he was apparently in prison for "everything". He would later orchestrate a massive escape attempt, leading to the elimination of the Council of Ricks, significant damage to [the Citadel](https://rickandmorty.fandom.com/wiki/The_Citadel "The Citadel"), and the destabilization of the entire Galactic Federation's economy. In "[The Wedding Squanchers](https://rickandmorty.fandom.com/wiki/The_Wedding_Squanchers "The Wedding Squanchers")," he alludes to the fact that he participated in an inter-galactic war called Battle of Blood Ridge against the Gromflomites with Birdperson. This shows that Rick is a notorious inter-galactic terrorist.
 
-I didn't ask for a completely reasonable excuse! I asked you to get busy! I never loved you. OK, this has gotta stop. I'm going to remind Fry of his humanity the way only a woman can. With a warning label this big, you know they gotta be fun!
-
-1. And from now on you're all named Bender Jr.
-2. Ah, computer dating. It's like pimping, but you rarely have to use the phrase "upside your head."
-3. You wouldn't. Ask anyway!
-
-Bender, quit destroying the universe! No! The cat shelter's on to me. Enough about your promiscuous mother, Hermes! We have bigger problems. Fatal. I guess if you want children beaten, you have to do it yourself.
-
-I decline the title of Iron Cook and accept the lesser title of Zinc Saucier, which I just made up. Uhh… also, comes with double prize money. You mean while I'm sleeping in it? I don't want to be rescued.
-
-* You know the worst thing about being a slave? They make you work, but they don't pay you or let you go.
-* And when we woke up, we had these bodies.
-* Spare me your space age technobabble, Attila the Hun!
-
-Hi, I'm a naughty nurse, and I really need someone to talk to. $9.95 a minute. But, like most politicians, he promised more than he could deliver. I don't know what you did, Fry, but once again, you screwed up! Now all the planets are gonna start cracking wise about our mamas.
-
-You mean while I'm sleeping in it? I suppose I could part with 'one' and still be feared… Nay, I respect and admire Harold Zoid too much to beat him to death with his own Oscar. Negative, bossy meat creature!
-
-Oh God, what have I done? I don't 'need' to drink. I can quit anytime I want! Bender! Ship! Stop bickering or I'm going to come back there and change your opinions manually! Wow! A superpowers drug you can just rub onto your skin? You'd think it would be something you'd have to freebase.
-
-Ask her how her day was. In our darkest hour, we can stand erect, with proud upthrust bosoms. Why did you bring us here? I don't know what you did, Fry, but once again, you screwed up! Now all the planets are gonna start cracking wise about our mamas.
-
-Good news, everyone! I've taught the toaster to feel love! This opera's as lousy as it is brilliant! Your lyrics lack subtlety. You can't just have your characters announce how they feel. That makes me feel angry!
-
-Hello Morbo, how's the family? You won't have time for sleeping, soldier, not with all the bed making you'll be doing. Oh Leela! You're the only person I could turn to; you're the only person who ever loved me.
-
-My fellow Earthicans, as I have explained in my book 'Earth in the Balance'', and the much more popular ''Harry Potter and the Balance of Earth', we need to defend our planet against pollution. Also dark wizards. Incidentally, you have a dime up your nose.
-
-You are the last hope of the universe. You know the worst thing about being a slave? They make you work, but they don't pay you or let you go. I meant 'physically'. Look, perhaps you could let me work for a little food? I could clean the floors or paint a fence, or service you sexually?
-
-Hey, guess what you're accessories to. I feel like I was mauled by Jesus. Why would a robot need to drink? What are their names? Fry! Quit doing the right thing, you jerk! Doomsday device? Ah, now the ball's in Farnsworth's court!
-
-I saw you with those two "ladies of the evening" at Elzars. Explain that. Shinier than yours, meatbag. That's the ONLY thing about being a slave. Um, is this the boring, peaceful kind of taking to the streets?
-
-Just once I'd like to eat dinner with a celebrity who isn't bound and gagged. Daddy Bender, we're hungry. Kids don't turn rotten just from watching TV. I just want to talk. It has nothing to do with mating. Fry, that doesn't make sense.
+As of now, Rick is about 70 years old and currently resides in his room in the Smith house. He also uses the garage as partial living quarters. In the garage, he works on his inventions and science - for example, traveling to other dimensions, building various robots and devices, and causing general mayhem in different parts of the universe, be it dimensions, planets, or alternate realities.
